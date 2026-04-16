@@ -1,1 +1,0 @@
-# seobyoun.github.io
